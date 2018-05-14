@@ -1,1 +1,0 @@
-# neurobistro.github.io
